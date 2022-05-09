@@ -4,7 +4,7 @@
 - 📞 +90 (554) 2263005
 - 📎 LinkedIn/ZeynepLalbek
 
-My Portoflio
+My Portfolio
 - [https://bit.ly/n11_Trendyol_Benchmark](https://bit.ly/n11_Trendyol_Benchmark)
 - [https://bit.ly/Meeting_Room_Scheduling](https://bit.ly/Meeting_Room_Scheduling)
 - [https://bit.ly/Yemek_Siparişleri_UX_Araştırması](https://bit.ly/Yemek_Sipari%C5%9Fleri_UX_Aras%CC%A7t%C4%B1rmas%C4%B1)
